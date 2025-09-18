@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://gifdb.com/images/high/pixel-art-super-mario-computer-amwdq1xi8bgz0omx.gif" alt="Pixel Art Super Mario за компьютером" />
+  <img src="https://gifdb.com/gif/patrick-bateman-sigma-face-meme-67jsga78td509a4e.html" />
 </p>
 
 <h1 align="center">Привет, я Андрей! 👋</h1>
