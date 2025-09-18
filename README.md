@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://gifdb.com/gif/patrick-bateman-sigma-face-meme-67jsga78td509a4e.html?embed=true" />
+  <img src="https://media.gifdb.com/patrick-bateman-sigma-face-meme-67jsga78td509a4e.gif" />
 </p>
 
 <h1 align="center">Привет, я Андрей! 👋</h1>
